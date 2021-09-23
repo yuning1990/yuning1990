@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @yuning1990
+- 👀 I’m interested in handling data
+- 🌱 I’m currently learning everything interested in
